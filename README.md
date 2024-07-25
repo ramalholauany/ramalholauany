@@ -1,1 +1,1 @@
--![PeacockSkullgirlsGIF](https://github.com/user-attachments/assets/59b390ab-0d35-4f7f-80aa-4fb7d5431013)
+<img src="https://th.bing.com/th/id/R.aa5b2ed1b78eb482d12e22b4ffb96f31?rik=cxkW16jkBCi3Yw&pid=ImgRaw&r=0">
